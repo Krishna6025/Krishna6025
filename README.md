@@ -1,5 +1,4 @@
 - Hi, I’m @saikrishna
-- I’m interested in the community and the people here
 - I’m currently staring to dive into the tech community
 - I am mostly into electronics and game development and trying to expand my horizon
 - Reach me at saikrishnasaitana@gmail.com
