@@ -1,4 +1,4 @@
-- Hi, I’m @saikrishna
+- Hi, I’m @saikrishna and i am from Hyderabad
 - I’m currently staring to dive into the tech community
 - I am mostly into electronics and game development and trying to expand my horizon
 - Reach me at saikrishnasaitana@gmail.com
